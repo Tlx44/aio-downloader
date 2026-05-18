@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 09:53
+---
+
+## VahidOOnLine — post 240743
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240743_1779085390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، اعلام کرد به‌زودی با رای نمایندگان مجلس، پاداش قابل‌ توجهی برای کسی که دونالد ترامپ و بنیامین نتانیاهو را «به درک واصل کند»، در نظر گرفته خواهد شد.
+
+او گفت تهدید مجدد مجتبی خامنه‌ای و فرماندهان نظامی جمهوری اسلامی از زبان برخی مقام‌های دشمن شنیده شده است.
+
+نبویان افزود مقام‌های آمریکایی و اسرائیلی و سران کشورهای منطقه بدانند، «این‌ بار اگر تعرضی صورت گیرد، آنها را به‌همراه کاخ‌هایشان نابود خواهیم کرد».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240742
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240742_1779085391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خاویر باردم، هنرپیشه اسپانیایی هوادار فلسطینیان در حاشیه جشنوار کن در پاسخ به خبرنگاران که از او درباره زیر سوال بردن مردانگی و نمایش خانواده‌ها بدون پدر در فیلم‌های به نمایش درآمده در جشنواره امسال سوال کردند گفت که خشونت علیه زنان نتیجه «مردانگی مسموم» است. او همچنین مدعی شد که رفتار دونالد ترامپ، رئیس‌جمهوری آمریکا، ولادیمیر پوتین، رئیس‌جمهوری روسیه و بنیامین نتانیاهو، نخست‌وزیر اسرائیل پیش از حد مردانه یا به تعبیر او دچار «رفتار مسموم مردانه» است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90936
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90936_1779085391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناسان معتبر عرب :
+
+احمد خلیفه : داره اتفاق میوفته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه خراسان: احتمال بروز جنگ و ترور مقامات سیاسی وجود دارد اما غافلگیر نمی‌شویم
+ 
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337726
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337726_1779085392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، اعلام کرد به‌زودی با رای نمایندگان مجلس، پاداش قابل‌ توجهی برای کسی که دونالد ترامپ و بنیامین نتانیاهو را «به درک واصل کند»، در نظر گرفته خواهد شد.
+
+او گفت تهدید مجدد مجتبی خامنه‌ای و فرماندهان نظامی جمهوری اسلامی از زبان برخی مقام‌های دشمن شنیده شده است.
+
+نبویان افزود مقام‌های آمریکایی و اسرائیلی و سران کشورهای منطقه بدانند، «این‌ بار اگر تعرضی صورت گیرد، آنها را به‌همراه کاخ‌هایشان نابود خواهیم کرد».
+https://iranintl.com/202605183807
+</div>
+
+## IranIntlTV — post 337725
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337725_1779085393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل بیکاری، اجاره خانه را از پس‌اندازشان داده‌اند و حالا پولی برای ودیعه و اجاره ندارند؛ «امیدوارم نتیجه این همه سختی و مشکلات برگشت پهلوی باشد.»
+</div>
+
+## Persian_Trend_Official — post 14382
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14382_1779085395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢استفاده و نمایش دوباره اسلحه در برنامه زنده صداوسیما ‼️
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 120770
+
+<div align="center">
+  <a href="telegram/content/alonews_120770_1779085398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: بی‌ملاحظگی ترامپ درباره تایوان اشتباه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120769
+
+<div align="center">
+  <a href="telegram/content/alonews_120769_1779085398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیت‌کوین به پایین‌ترین سطح دو هفته گذشته رسید
+
+
+🔴بیت‌کوین ضعیف شد و به پایین‌ترین سطح خود در بیش از دو هفته گذشته رسید، زیرا ریسک‌های کلان گسترده ناشی از جنگ آمریکا و ایران معامله‌گران را وادار کرد موقعیت‌های خود را کاهش دهند.
+
+
+🔴این ارز دیجیتال اصلی در روز دوشنبه تا ۷۶,۷۱۱ دلار سقوط کرد، که پایین‌ترین سطح از اول مه بود، قبل از آنکه بخشی از ضررهای خود را جبران کند. سایر توکن‌ها، از جمله اتریوم و سولانا، نیز کاهش یافتند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120768
+
+<div align="center">
+  <a href="telegram/content/alonews_120768_1779085398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدراعظم سابق آلمان، آنگلا مرکل:
+هیچ کشوری در جهان نمی‌تواند همه مشکلاتی را که با آن‌ها روبرو هستیم به تنهایی حل کند.
+
+
+🔴حتی کشوری به بزرگی و قدرت ایالات متحده نیز، به نظر من، باید علاقه‌مند باشد که چند دوست در جهان داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 09:42
 ---
 
