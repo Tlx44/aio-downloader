@@ -7,6 +7,182 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 18:13
+---
+
+## VahidOOnLine — post 240808
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240808_1779115417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سرگئی لاوروف، وزیر خارجه روسیه، در بحبوحه فشارهای دولت ترامپ بر تهران، روز دوشنبه ۲۸ اردیبهشت‌ماه اعلام کرد ایران مانند دیگر اعضای پیمان منع گسترش سلاح‌های هسته‌ای، «حق کامل» دارد برای اهداف صلح‌آمیز اورانیوم غنی‌سازی کند.
+
+لاوروف در نشست خبری در مسکو گفت روسیه در روند مذاکرات میان واشنگتن و تهران دخالت نخواهد کرد و از هر توافقی که دو طرف بپذیرند، حمایت می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ تلویزیون اسرائیل: نتانیاهو برای دومین بار در ۲۴ ساعت گذشته با کابینه امنیتی تشکیل جلسه داد
+@withyashar
+</div>
+
+## WithYashar — post 11549
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهور کوبا: هر حمله نظامی به کوبا به حمام خون و عواقب غیرقابل پیش‌بینی منجر می‌شود
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341874
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341874_1779115417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPENING NOW: Former Epstein prison guard Tova Noel arrives at the House Oversight Committee’s closed-door transcribed interview.
+
+The Metropolitan Correctional Center prison guard was on duty the night Jeffrey Epstein died in 2019 and believes she was the last person to see him alive at the facility.
+
+Lawmakers are expected to question her about her actions during that shift and the prison’s security protocols as part of the ongoing congressional investigation into Epstein’s death.
+</div>
+
+## FoxNewsTwitter — post 341873
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341873_1779115419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Luigi Mangione scoring a partial victory in court as a judge rules that evidence recovered from the alleged UnitedHealthcare CEO killer’s backpack at a McDonald’s must be suppressed.
+
+According to the ruling, that evidence includes a loaded gun magazine, a cellphone, a passport, a wallet, and a computer chip investigators allegedly recovered during the search at that time.
+
+However, this ruling does not suppress the gun that police say was used to kill Brian Thompson, which was recovered from Mangione's backpack at a different time, from being entered as evidence.
+
+@EricShawnTV breaks down the latest.
+</div>
+
+## pm_afshaa — post 90958
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90958_1779115420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز: نتانیاهو امروز جلسه امنیتی محدودی با مقامات ارشد دفاعی و چند وزیر درباره ایران برگزار خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90957
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90957_1779115420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره به نقل از یک منبع آمریکایی:
+صبر ترامپ به خاطر اینکه با ایران پیشرفتی حاصل نشده داره تموم میشه؛ ترامپ حاضره دست به کار نظامی بزنه، مگر اینکه تو چند روز آینده یه چیزی از ایران بشنوه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337795
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337795_1779115421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۸ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337794
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337794_1779115422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻باشگاه استقلال در حالی مدت‌هاست مدیرعامل ندارد که علی تاجرنیا همه‌کاره این باشگاه است و انتشار سندهای مالی این باشگاه نشان می‌دهد که استقلال با بحران مالی شدید مواجه است و خطر توقیف اموال این باشگاه را تهدید می‌کند.
+
+🔹توضیحات مزدک میرزایی، ایران‌اینترنشنال در برنامه هت‌تریک
+
+🔹تماشای نسخه کامل هت‌تریک؛👇
+https://youtu.be/gw3eJ0R9R5Y
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14415
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14415_1779115424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ هشدار مهم!
+
+یه تکنیک جدید هکرها پیدا شده که دارن از کپچا استفاده می‌کنن برای نفوذ به گوشی و کامپیوترت!
+
+🔴 چطور کار می‌کنه؟
+
+وقتی می‌خوای وارد یه سایت بشی، یه صفحه شبیه کپچای معمولی (با لوگوی Cloudflare) باز می‌شه. بعد ازت می‌خواد:
+• کلیدهای Win + R رو فشار بدی
+• یه دستور آماده رو پیست کنی
+• اینتر بزنی
+
+نتیجه؟ 🔥
+بدون اینکه بفهمی، تروجان و جاسوس‌افزار روی سیستمت نصب می‌شه و اطلاعاتت به سرقت می‌ره!
+
+📈 آمار ترسناک:
+موارد این نوع حمله امسال ۵۶۳ درصد افزایش یافته!
+
+✅ چطور تشخیص بدی؟
+کپچای واقعی هیچ‌وقت ازت نمی‌خواد وارد Run ویندوز بشی یا دستوری اجرا کنی. هرچیزی غیر از انتخاب تصویر = تقلبی!
+
+👆 مراقب باشید، به دوستاتون هم بگید!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع آمریکایی به الجزیره:
+
+صبر رئیس‌جمهور ترامپ به دلیل عدم پیشرفت در پرونده ایران، رو به پایان است.
+
+@IranianMinds
+</div>
+
+## alonews — post 120890
+
+<div align="center">
+  <a href="telegram/content/alonews_120890_1779115424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کابینه ارتش اسرائیل امشب تشکیل جلسه میده - طبق گزارش رسانه‌‌های اسرائیلی 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 18:03
 ---
 
