@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 16:22
+---
+
+## WithYashar — post 11654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل : در ساعات اخیر، ۲۵ انبار و سکوی پرتاب موشک متعلق به حزب‌الله را در جنوب لبنان نابود کردیم
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341925
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341925_1779195146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A $1.776 BILLION federal fund is being created for Americans who say they were politically targeted by the government.
+
+The DOJ agreed to launch the “Anti-Weaponization Fund” as part of a settlement after President Trump and his sons sued the IRS for $10 billion over alleged political targeting, misconduct, and abuse of power.
+
+Trump agreed to drop the lawsuit. The DOJ agreed to issue a formal apology. Trump and his sons cannot receive money from the fund.
+
+Supporters say it’s long-overdue. Critics say taxpayers could end up funding it with unclear standards.
+
+The bigger question: Should the federal government compensate people who claim they were politically targeted — and who gets to decide where that line is?
+</div>
+
+## FoxNewsTwitter — post 341924
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341924_1779195147.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: U.S. Attorney Jeanine Pirro threatens to lock up parents and children over violent “teen takeovers” that are spreading across the nation’s capital.
+
+“Parents have a fundamental responsibility to control their children. It's their children, not the government's children.”
+
+“If parents do not step up and stand in the place of their children, then we're going to prosecute the parents and the children... I've got a lot of opportunities to go after these parents, and no one is going to stop me from doing that.” | @foxandfriends
+</div>
+
+## DEJradio — post 4735
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4735_1779195148.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 طبق اعلام مدیرکل تعزیرات حکومتی استان فارس، ۹۰۰ تُن مرغ منجمد احتکار شده در یکی از سردخانه‌های شیراز کشف شد.
+
+احتکار حجم سنگینی از مواد خوراکی سودجویی سازمان یافته است که نمی‌تواند بدون پشتوانه بالادستی باشد. این در حالی است که مراجع قضایی حکومت بارها در مورد برخورد با احتکار هشدار داده بودند و برای مقابله با آن قرارگاه ویژه تاسیس شده است.
+احتکار از عوامل اصلی کمیابی کالا و گرانی است.
+
+#فارس #احتکار_مرغ
+@DEJradio
+</div>
+
+## DW_Farsi — post 124870
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124870_1779195149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 بازداشت ۱۱۰ نفر در ترکیه به ظن ارتباط با داعش
+
+مقامات امنیتی و ضدترور ترکیه سه‌شنبه ۱۹ مه (۲۹ اردیبهشت) از بازداشت ۱۱۰ نفر به اتهام ارتباط و وابستگی به سازمان تروریستی داعش خبر دادند. عملیات نیروهای امنیتی با برنامه‌ریزی و سازماندهی دادستانی کل ترکیه انجام گرفت.
+
+به گزارش خبرگزاری آنادولو بازداشت‌شدگان متهم هستند که در انجمن‌های غیرقانونی و کلاس‌های درس، کودکان را طبق ایدئولوژی‌های داعش آموزش می‌دادند تا نیروهای جدید جذب کرده و همچنین برای داعش کمک‌های مالی جمع‌آوری کنند.
+
+عملیات نیروهای امنیتی در سه استان صورت گرفته که بخش اعظم آن بر استانبول متمرکز بوده است. افزون بر بازداشت ۱۱۰ نفر، ۴ قبضه سلاح، ۹۰ فشنگ و اسناد و داده‌های دیجیتال کشف و ضبط شده است.
+
+وزارت کشور ترکیه اعلام کرد که پلیس این کشور در هفته گذشته در جریان بازرسی‌ها و عملیات تفتیش در ۴۷ نقطه مختلف کشور ۳۴۲ نفر را به اتهام عضویت در سازمان تروریستی داعش بازداشت کرده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14479
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14479_1779195149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید در دنیای موازی 🤷‍♂️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121090
+
+<div align="center">
+  <a href="telegram/content/alonews_121090_1779195150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش چشم؛ کارشناس صداوسیما: موشکی که کنار دیمونا زدیم از جنس خاص بود و زمین رو سوراخ کرد و اسرائیلی هارو رو توی یک پناهگاه خاص کشت/ اگر دوباره جنگ بشه فقط از اون جنس موشک می‌زنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 16:12
 ---
 
