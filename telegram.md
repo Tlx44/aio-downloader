@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 21:42
+---
+
+## VahidOOnLine — post 241021
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241021_1779214379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان در پیام‌هایی به ایران‌اینترنشنال نسبت به معلق بودن وضعیت جمهوری اسلامی، از ترامپ و سیاست دولتش انتقاد می‌کنند. یک شهروند خواسته که ترامپ مقابله با جمهوری اسلامی را به نتانیاهو بسپارد. پیام این شهروند با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامزد آیدا عقیلی، جاویدنام انقلاب ملی، در ویدیویی مبر سر مزار او توضیح داد که پس از جان باختن همسرش به خیابان رفت و به اعتراض به ماموران سرکوب پرداخت که یکی از آن‌ها گفت حقوق ماموران ۲۰ میلیون تومان است. نامزد این جاویدنام به وضعیت معیشتی بد شهروندان و اعتراض آن‌ها نیز اشاره کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241019
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241019_1779214381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اگر این شب‌ها پس از غروب خورشید به آسمان نگاه کنید، ممکن است در کنار هلال باریک ماه دو «ستاره» بسیار درخشان ببینید؛ اما این نقاط نورانی درواقع سیاره‌های زهره و مشتری هستند که در ماه مه ۲۰۲۶ از بهترین اجرام قابل‌مشاهده در آسمان شب به شمار می‌روند.
+این دو سیاره در روزهای پایانی اردیبهشت و آغاز خرداد هر شب به‌ظاهر به یکدیگر نزدیک‌تر می‌شوند و سرانجام به مقارنه یا هم‌نشینی (Conjunction) می‌رسند؛ پدیده‌ای نجومی که در آن دو جرم آسمانی از دید ناظر زمینی بسیار نزدیک به هم دیده می‌شوند.
+از ۲۸ تا ۳۰ اردیبهشت، هلال باریک ماه نیز به این منظره اضافه می‌شود و ترکیب سه‌گانه‌ای از ماه، زهره و مشتری را در آسمان پس از غروب ایجاد می‌کند؛ نمایی که بدون نیاز به تلسکوپ و تنها با چشم غیرمسلح قابل‌مشاهده است.
+این پدیده تقریبا از بخش بزرگی از کره زمین قابل‌مشاهده است؛ ازجمله در بیشتر کشورهای اروپا، خاورمیانه، ایران، ترکیه، شمال آفریقا، آمریکای شمالی و بخش‌هایی از آسیا. شرط اصلی برای تماشای آن، آسمان صاف، افق باز در سمت غرب و تاریک شدن کافی هوا پس از غروب خورشید است.
+اخترشناسان می‌گویند این نوع هم‌نشینی‌های سیاره‌ای، علاوه بر زیبایی بصری، یکی از بهترین فرصت‌ها برای علاقه‌مندان تازه‌کار نجوم است تا بتوانند سیاره‌های منظومه شمسی را به‌راحتی در آسمان پیدا کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای جی‌دی ونس درباره ایران:
+تحویل ذخایر اورانیوم غنی‌شده ایران به روسیه، در حال حاضر برنامه ما نیست. هیچ‌وقت برنامه ما نبوده است.
+
+نمی‌دانم این گزارش‌ها از کجا می‌آید.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341947
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341947_1779214382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vice President Leavitt?
+
+JD Vance jokes about the deal he made with Karoline Leavitt for filling in behind the podium in the the White House briefing room:
+
+"I told Karoline I would stand in for her today for the White House press briefing on the condition that when Usha has our baby in July, that she would be vice president for a couple of weeks."
+</div>
+
+## FoxNewsTwitter — post 341946
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341946_1779214383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: VP Vance calls out fraudsters who are stealing money from innocent people relying on America's spirit of generosity:
+
+"I think it's a great thing about our country is that we have this generosity of spirit where we take care of one another, but fraud takes that away from us because it steals money from the taxpayer when they pay their taxes.”
+
+“And it also steals money from innocent people who are meant to benefit from these programs, but can't when the money runs dry."
+</div>
+
+## FoxNewsTwitter — post 341945
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341945_1779214385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP Vance warns that allowing Iran to have a nuclear weapon opens the door for more anti-American regimes to put the world in danger for future generations:
+
+"As the father of three young kids, I don't want them to inherit a world where 20 additional regimes, half of them very dangerous and very sympathetic to terrorists, have nuclear weapons."
+
+"We want to keep the number of countries that have nuclear weapons small, and that's why Iran cannot have a nuclear weapon on top of all the other things that we might be worried about."
+</div>
+
+## pm_afshaa — post 91059
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91059_1779214386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس: ترامپ پس از اعلام به‌تعویق انداختن حمله به ایران، با مشاوران امنیت ملی خود جلسه‌ای برگزار کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91058
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91058_1779214387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ونس: تحویل اورانیوم ایران به روسیه هیچوقت جزو برنامه‌های ما نبوده و نمیدونم این گزارشات از کجا میان.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91057
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91057_1779214387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+اگر ایران به سلاح هسته‌ای دست پیدا کنه، کشورهای بیشتری به‌دنبال دستیابی به سلاح هسته‌ای خواهند رفت و ایران میتونه آغازگر یک مسابقه تسلیحات هسته‌ای جدید باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337975
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337975_1779214388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان در پیام‌هایی به ایران‌اینترنشنال نسبت به معلق بودن وضعیت جمهوری اسلامی، از ترامپ و سیاست دولتش انتقاد می‌کنند. یک شهروند خواسته که ترامپ مقابله با جمهوری اسلامی را به نتانیاهو بسپارد. پیام این شهروند با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامزد آیدا عقیلی، جاویدنام انقلاب ملی، در ویدیویی مبر سر مزار او توضیح داد که پس از جان باختن همسرش به خیابان رفت و به اعتراض به ماموران سرکوب پرداخت که یکی از آن‌ها گفت حقوق ماموران ۲۰ میلیون تومان است. نامزد این جاویدنام به وضعیت معیشتی بد شهروندان و اعتراض آن‌ها نیز اشاره کرد.
+</div>
+
+## DW_Farsi — post 124899
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124899_1779214390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 وزیر دارایی اسرائيل: دیوان لاهه برای بازداشت من درخواست داده است
+
+بتصلئل اسموتریچ، وزیر دارایی اسرائيل می‌گوید، مطلع شده که دیوان کیفری بین‌المللی مستقر در لاهه هلند برای صدور حکم بازداشت او درخواست ارائه کرده است.
+
+این سیاستمدار راست‌گرای افراطی اسرائيل روز سه‌شنبه ۱۹ مه در یک کنفرانس مطبوعاتی اعلام کرد که شامگاه دوشنبه از این موضوع اطلاع یافته است. او روشن نساخت، از چه کسی این خبر را شنیده و دادگاه چه دلایلی برای این اقدام مطرح کرده است.
+
+روند رسیدگی به چنین درخواست‌هایی محرمانه است. دادستانی می‌تواند درخواست خود را به قضات ارائه دهد و آن‌ها نیز در صورت وجود شواهد کافی مبنی بر وقوع جرایمی که رسیدگی به آن‌ها در صلاحیت دادگاه است، باید با این درخواست موافقت کنند.
+
+اسموتریچ صدور حکم بازداشت برای مقامات دولتی اسرائیل را "اعلام جنگ" از سوی تشکیلات خودگردان فلسطینی توصیف کرده است.
+
+خبرگزاری‌ها همچنین اعلام کرده‌اند که وزیر دارایی اسرائيل روز سه‌شنبه دستور تخلیه و تخریب روستای "خان الاحمر" در کرانه باختری رود اردن را صادر و اعلام کرده که این اقدام، پاسخی است به اطلاعاتی که در مورد درخواست حکم بازداشت‌اش از سوی دیوان لاهه دریافت کرده است.
+
+دیوان لاهه تا کنون به صورت رسمی این خبر را تأیید نکرده است.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 281511
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281511_1779214390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجید قهرودی، عکاس، ویدیویی از طلوع خورشید بر فراز دماوند از میان قوس برج آزادی (شهیاد) را به همراه شعری از سیاوش کسرایی منتشر کرده و در پایان آن نوشته: «طلوع خورشید بر فراز دماوند از دل آزادی»
+
+او در ادامه بعد از شعر سیاوش کسرایی آرزو کرده: «تو یه روزی که حال این سرزمین خوبه، کنار هم بشینیم و این منظره رو تماشا کنیم…»
+
+او می‌گوید هر سال در تاریخ های ۲۹ اردیبهشت و ۳ مرداد از میدان آزادی ی توان طلوع خورشید رو از راس دماوند تماشا کرد.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389767
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389767_1779214393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که تو اینستاگرام بیش از چندمیلیارد بازدید خورده :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به دلیل «کشف حجاب»؛ یک کافه در کاشان پلمب شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– معاون گردشگری اداره میراث فرهنگی، گردشگری و صنایع‌دستی کاشان اعلام کرد کافه «عامری‌ها» در این شهرستان به‌دلیل آنچه «کشف حجاب» عنوان شده، پلمب شده است.
+
+#پلمب
+#کاشان
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 121163
+
+<div align="center">
+  <a href="telegram/content/alonews_121163_1779214394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس: «چرا به اسلام‌آباد، پاکستان رفتم؟ چرا احتمالاً ۲۲ ساعت در هواپیما برای رفتن سپری کردم، ۲۴ ساعت برای برگشتن، و ۲۱ ساعت در آنجا با ایرانی‌ها مذاکره کردم؟ به این دلیل بود که ما می‌خواستیم نشانه‌ای از حسن‌نیت نشان دهیم. رئیس‌جمهور حاضر است توافق کند، تا زمانی که ایرانی‌ها حاضر باشند دوباره در آن مسئله اصلی یعنی هرگز نداشتن سلاح هسته‌ای، به سمت ما بیایند.
+
+
+🔴بنابراین، ما در وضعیت بسیار خوبی هستیم، اما یک گزینه B هم وجود دارد، و آن گزینه B این است که بتوانیم کارزار نظامی را از سر بگیریم تا پرونده را ادامه دهیم.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121162
+
+<div align="center">
+  <a href="telegram/content/alonews_121162_1779214394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرمانده سنتکام:
+بررسی بمباران مدرسه میناب پیچیده‌ست، چون این مدرسه در محل یک پایگاه فعال موشک‌های کروز در ایران قرار داشته.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 21:33
 ---
 
